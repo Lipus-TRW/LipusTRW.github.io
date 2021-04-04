@@ -11,19 +11,18 @@ Return. Remake.
 
 ### Windows Longhorn 10 Concept Fluent
 The fusion of the past and now.
-
+[【蓝奏云下载】](https://wwx.lanzoui.com/ibdv2h21lab)
 
 ### 相关视频
-[The Frist Version](https://www.bilibili.com/video/BV1jQ4y1N7HL)
+[•The Frist Version](https://www.bilibili.com/video/BV1jQ4y1N7HL)
 
-[Update 1](https://www.bilibili.com/video/BV12V411B7mt)
+[•Update 1](https://www.bilibili.com/video/BV12V411B7mt)
 
-[Update 2](https://www.bilibili.com/video/BV1p54y1U7DV)
+[•Update 2](https://www.bilibili.com/video/BV1p54y1U7DV)
 
-[Fluent Version](https://www.bilibili.com/video/BV1Bz4y1f7qM)
+[•Fluent Version](https://www.bilibili.com/video/BV1Bz4y1f7qM)
 
 
-[【蓝奏云下载】](https://wwx.lanzoui.com/ibdv2h21lab)
 
 
 ### 历史版本
